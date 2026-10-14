@@ -1,1 +1,1 @@
-# Little
+# Daily Note
